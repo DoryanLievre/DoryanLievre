@@ -23,7 +23,7 @@
 
 
 - 😄 Quote: "Nana korobi ya oki / Baby step by baby step"
-- ⚡ Fun fact:
+- ⚡ About me :
     
     - I love cooking
     - Martial Art : Wing chun
