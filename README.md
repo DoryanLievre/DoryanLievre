@@ -1,4 +1,4 @@
-### Hi there 👋
+### 👋 Hey there.
 
 **I am :**
 - 🌱 Currently a work-study developper at O'clock
